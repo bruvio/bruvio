@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Run.
+> 🥠 He who laughs at himself never runs out of things to laugh at.
 
 ### Where you can find me
 

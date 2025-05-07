@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 All fortunes are wrong except this one.
+> 🥠 Three can keep a secret, if you get rid of two.
 
 ### Where you can find me
 

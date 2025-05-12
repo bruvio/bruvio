@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 18,000 children starve to death every day. They would have loved this cookie.
+> 🥠 The greatest danger could be your stupidity.
 
 ### Where you can find me
 

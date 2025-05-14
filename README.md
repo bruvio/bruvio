@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I see money in your future. It's not yours though.
+> 🥠 Never do something halfway. If you do it w
 
 ### Where you can find me
 

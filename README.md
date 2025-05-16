@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You think it’s a secret, but they know.
+> 🥠 You will be hungry again in one hour.
 
 ### Where you can find me
 

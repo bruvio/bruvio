@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
 
 ### Where you can find me
 

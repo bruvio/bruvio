@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You have rice in your teeth.
+> 🥠 An alien of some sort will be appearing to you shortly.
 
 ### Where you can find me
 

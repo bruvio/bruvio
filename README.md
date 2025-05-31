@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I cannot help you, for I am just a cookie.
+> 🥠 This cookie contains 117 calories.
 
 ### Where you can find me
 

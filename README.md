@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 No snowflake feels responsible in an avalanche.
+> 🥠 Enjoy yourself while you can.
 
 ### Where you can find me
 

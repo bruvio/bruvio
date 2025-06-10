@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will die alone and poorly dressed.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 

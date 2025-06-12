@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Someone will invite you to a Karaoke party.
+> 🥠 Only listen to the fortune cookie; disregard all other fortune telling units.
 
 ### Where you can find me
 

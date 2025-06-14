@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never wear your best pants when you go to fight for freedom.
+> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
 
 ### Where you can find me
 

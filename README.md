@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
+> 🥠 Enjoy yourself while you can.
 
 ### Where you can find me
 

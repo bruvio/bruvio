@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A closed mouth gathers no feet.
+> 🥠 You love Chinese food.
 
 ### Where you can find me
 

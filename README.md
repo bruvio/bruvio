@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 All fortunes are wrong except this one.
 
 ### Where you can find me
 

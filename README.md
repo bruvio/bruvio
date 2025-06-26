@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Do not mistake temptation for opportunity.
+> 🥠 You will be hungry again in one hour.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 An alien of some sort will be appearing to you shortly.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 An alien of some sort will be appearing to you shortly.
+> 🥠 Your pet is planning to eat you.
 
 ### Where you can find me
 

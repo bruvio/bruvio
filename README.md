@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will receive a fortune cookie.
+> 🥠 It’s about time I got out of that cookie.
 
 ### Where you can find me
 

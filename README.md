@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 What's the speed of dark?
+> 🥠 I am worth a fortune.
 
 ### Where you can find me
 

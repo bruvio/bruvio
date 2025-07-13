@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I am worth a fortune.
+> 🥠 A cynic is only a frustrated optimist.
 
 ### Where you can find me
 

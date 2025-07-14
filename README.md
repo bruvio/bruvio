@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A cynic is only a frustrated optimist.
+> 🥠 Don’t behave with cold manners.
 
 ### Where you can find me
 

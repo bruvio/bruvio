@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

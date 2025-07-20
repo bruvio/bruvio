@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who throws dirt is losing ground.
+> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
 
 ### Where you can find me
 

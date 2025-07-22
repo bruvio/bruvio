@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t let statistics do a number on you.
+> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
 
 ### Where you can find me
 

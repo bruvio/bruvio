@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
+> 🥠 18,000 children starve to death every day. They would have loved this cookie.
 
 ### Where you can find me
 

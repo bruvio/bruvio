@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 18,000 children starve to death every day. They would have loved this cookie.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

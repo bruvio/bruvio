@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 That wasn’t chicken.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 

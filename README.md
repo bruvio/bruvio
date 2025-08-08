@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 This cookie contains 117 calories.
+> 🥠 Someone will invite you to a Karaoke party.
 
 ### Where you can find me
 

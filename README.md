@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 What's the speed of dark?
+> 🥠 Don’t behave with cold manners.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 You can always find happiness at work on Friday.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A conclusion is simply the place where you got tired of thinking.
+> 🥠 Hard work pays off in the future. Laziness pays off now.
 
 ### Where you can find me
 

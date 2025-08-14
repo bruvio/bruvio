@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Hard work pays off in the future. Laziness pays off now.
+> 🥠 18,000 children starve to death every day. They would have loved this cookie.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 I can't believe you're about to eat my tiny home.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
+> 🥠 You think it’s a secret, but they know.
 
 ### Where you can find me
 

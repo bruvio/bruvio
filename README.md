@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You think it’s a secret, but they know.
+> 🥠 Only listen to the fortune cookie; disregard all other fortune telling units.
 
 ### Where you can find me
 

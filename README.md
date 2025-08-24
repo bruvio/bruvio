@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Only listen to the fortune cookie; disregard all other fortune telling units.
+> 🥠 Never do something halfway. If you do it w
 
 ### Where you can find me
 

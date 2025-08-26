@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Flattery will go far tonight.
+> 🥠 You have rice in your teeth.
 
 ### Where you can find me
 

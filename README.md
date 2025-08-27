@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You have rice in your teeth.
+> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
 
 ### Where you can find me
 

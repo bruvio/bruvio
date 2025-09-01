@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
+> 🥠 Never forget a friend. Especially if he owes you.
 
 ### Where you can find me
 

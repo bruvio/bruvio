@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Where you can find me
 

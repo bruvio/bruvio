@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
+> 🥠 We don’t know the future, but here’s a cookie.
 
 ### Where you can find me
 

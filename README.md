@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A conclusion is simply the place where you got tired of thinking.
+> 🥠 He who laughs last is laughing at you.
 
 ### Where you can find me
 

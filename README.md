@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There is no mistake so great as that of being always right.
+> 🥠 Some fortune cookies contain no fortune.
 
 ### Where you can find me
 

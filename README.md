@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will live long enough to open many fortune cookies.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 

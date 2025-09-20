@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 Don’t forget you are always on our minds.
 
 ### Where you can find me
 

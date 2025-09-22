@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The greatest danger could be your stupidity.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

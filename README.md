@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 No snowflake feels responsible in an avalanche.
+> 🥠 Does not compile.
 
 ### Where you can find me
 

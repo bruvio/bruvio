@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Does not compile.
+> 🥠 Never forget a friend. Especially if he owes you.
 
 ### Where you can find me
 

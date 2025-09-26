@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 Enjoy yourself while you can.
 
 ### Where you can find me
 

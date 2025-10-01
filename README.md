@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

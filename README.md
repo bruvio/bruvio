@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fail.
+> 🥠 Don’t eat the paper.
 
 ### Where you can find me
 

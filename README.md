@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 That wasn’t chicken.
+> 🥠 Fail.
 
 ### Where you can find me
 

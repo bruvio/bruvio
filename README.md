@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fortune not found? Abort, Retry, Ignore.
+> 🥠 It’s about time I got out of that cookie.
 
 ### Where you can find me
 

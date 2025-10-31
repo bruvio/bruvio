@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It’s about time I got out of that cookie.
+> 🥠 An alien of some sort will be appearing to you shortly.
 
 ### Where you can find me
 

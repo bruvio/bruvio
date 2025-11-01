@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 An alien of some sort will be appearing to you shortly.
+> 🥠 I can't believe you're about to eat my tiny home.
 
 ### Where you can find me
 

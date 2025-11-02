@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I can't believe you're about to eat my tiny home.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

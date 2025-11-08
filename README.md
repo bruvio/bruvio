@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Three can keep a secret, if you get rid of two.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

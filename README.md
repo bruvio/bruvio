@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 Some fortune cookies contain no fortune.
 
 ### Where you can find me
 

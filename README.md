@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 Do not mistake temptation for opportunity.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Someone will invite you to a Karaoke party.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

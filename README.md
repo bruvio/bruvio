@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 May you someday be carbon neutral.
+> 🥠 The fortune you seek is in another cookie.
 
 ### Where you can find me
 

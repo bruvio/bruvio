@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The fortune you seek is in another cookie.
+> 🥠 A closed mouth gathers no feet.
 
 ### Where you can find me
 

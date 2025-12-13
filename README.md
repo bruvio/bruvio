@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The greatest danger could be your stupidity.
+> 🥠 There's no angry way to say bubbles.
 
 ### Where you can find me
 

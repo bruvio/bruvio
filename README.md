@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There's no angry way to say bubbles.
+> 🥠 All fortunes are wrong except this one.
 
 ### Where you can find me
 

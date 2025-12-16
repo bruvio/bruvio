@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Change is inevitable, except for vending machines.
+> 🥠 Actions speak louder than fortune cookies.
 
 ### Where you can find me
 

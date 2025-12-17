@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Actions speak louder than fortune cookies.
+> 🥠 He who laughs last is laughing at you.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Actions speak louder than fortune cookies.
+> 🥠 It is a good day to have a good day.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It is a good day to have a good day.
+> 🥠 He who laughs last is laughing at you.
 
 ### Where you can find me
 

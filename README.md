@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You have rice in your teeth.
+> 🥠 Help! I am being held prisoner in a fortune cookie factory.
 
 ### Where you can find me
 

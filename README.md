@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Help! I am being held prisoner in a fortune cookie factory.
+> 🥠 He who laughs last is laughing at you.
 
 ### Where you can find me
 

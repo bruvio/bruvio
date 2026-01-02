@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 What's the speed of dark?
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Where you can find me
 

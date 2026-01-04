@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 All fortunes are wrong except this one.
+> 🥠 Fail.
 
 ### Where you can find me
 

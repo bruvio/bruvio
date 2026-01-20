@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A cynic is only a frustrated optimist.
+> 🥠 We don’t know the future, but here’s a cookie.
 
 ### Where you can find me
 

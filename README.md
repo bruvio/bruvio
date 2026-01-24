@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 Don’t behave with cold manners.
 
 ### Where you can find me
 

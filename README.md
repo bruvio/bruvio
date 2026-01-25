@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 He who laughs at himself never runs out of things to laugh at.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Where you can find me
 

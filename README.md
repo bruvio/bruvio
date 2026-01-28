@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 

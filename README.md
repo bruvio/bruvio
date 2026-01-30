@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t let statistics do a number on you.
+> 🥠 He who throws dirt is losing ground.
 
 ### Where you can find me
 

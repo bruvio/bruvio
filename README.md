@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I see money in your future. It's not yours though.
+> 🥠 You don't have to be faster than the bear, you just have to be faster than the slowing guy running from it.
 
 ### Where you can find me
 

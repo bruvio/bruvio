@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

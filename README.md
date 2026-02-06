@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t let statistics do a number on you.
+> 🥠 This cookie contains 117 calories.
 
 ### Where you can find me
 

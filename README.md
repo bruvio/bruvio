@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You think it’s a secret, but they know.
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Where you can find me
 

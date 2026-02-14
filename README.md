@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Change is inevitable, except for vending machines.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

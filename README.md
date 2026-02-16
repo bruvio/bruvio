@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Does not compile.
+> 🥠 This cookie contains 117 calories.
 
 ### Where you can find me
 

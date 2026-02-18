@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 All fortunes are wrong except this one.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Help! I am being held prisoner in a fortune cookie factory.
+> 🥠 What's the speed of dark?
 
 ### Where you can find me
 

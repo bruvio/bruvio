@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 What's the speed of dark?
+> 🥠 Actions speak louder than fortune cookies.
 
 ### Where you can find me
 

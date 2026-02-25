@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I see money in your future. It's not yours though.
+> 🥠 Never forget a friend. Especially if he owes you.
 
 ### Where you can find me
 

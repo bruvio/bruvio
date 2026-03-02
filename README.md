@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 That wasn’t chicken.
+> 🥠 Hard work pays off in the future. Laziness pays off now.
 
 ### Where you can find me
 

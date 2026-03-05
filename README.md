@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who throws dirt is losing ground.
+> 🥠 Flattery will go far tonight.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The fortune you seek is in another cookie.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 

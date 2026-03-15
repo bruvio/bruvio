@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 

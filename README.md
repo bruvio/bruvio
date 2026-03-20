@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You think it’s a secret, but they know.
+> 🥠 There is no mistake so great as that of being always right.
 
 ### Where you can find me
 

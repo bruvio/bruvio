@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I cannot help you, for I am just a cookie.
+> 🥠 An alien of some sort will be appearing to you shortly.
 
 ### Where you can find me
 

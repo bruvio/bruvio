@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 

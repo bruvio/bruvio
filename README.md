@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You can always find happiness at work on Friday.
+> 🥠 Your pet is planning to eat you.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
 
 ### Where you can find me
 

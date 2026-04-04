@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You can always find happiness at work on Friday.
+> 🥠 Only listen to the fortune cookie; disregard all other fortune telling units.
 
 ### Where you can find me
 

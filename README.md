@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Only listen to the fortune cookie; disregard all other fortune telling units.
+> 🥠 The fortune you seek is in another cookie.
 
 ### Where you can find me
 

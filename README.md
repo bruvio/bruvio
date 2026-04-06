@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The fortune you seek is in another cookie.
+> 🥠 Some fortune cookies contain no fortune.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Some fortune cookies contain no fortune.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I am worth a fortune.
+> 🥠 Fail.
 
 ### Where you can find me
 

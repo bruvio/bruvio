@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 This cookie contains 117 calories.
+> 🥠 He who throws dirt is losing ground.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs at himself never runs out of things to laugh at.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Where you can find me
 

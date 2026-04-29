@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
+> 🥠 A conclusion is simply the place where you got tired of thinking.
 
 ### Where you can find me
 

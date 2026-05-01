@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 

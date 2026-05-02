@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you look back, you’ll soon be going that way.
+> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
 
 ### Where you can find me
 

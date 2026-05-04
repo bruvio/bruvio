@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

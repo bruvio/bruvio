@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
+> 🥠 You have rice in your teeth.
 
 ### Where you can find me
 

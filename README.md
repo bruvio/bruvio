@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You have rice in your teeth.
+> 🥠 You think it’s a secret, but they know.
 
 ### Where you can find me
 

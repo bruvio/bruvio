@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You think it’s a secret, but they know.
+> 🥠 You will live long enough to open many fortune cookies.
 
 ### Where you can find me
 

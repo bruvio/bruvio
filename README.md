@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will live long enough to open many fortune cookies.
+> 🥠 18,000 children starve to death every day. They would have loved this cookie.
 
 ### Where you can find me
 

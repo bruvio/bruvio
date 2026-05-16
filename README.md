@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Enjoy yourself while you can.
+> 🥠 Actions speak louder than fortune cookies.
 
 ### Where you can find me
 

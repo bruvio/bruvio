@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Does not compile.
+> 🥠 That wasn’t chicken.
 
 ### Where you can find me
 

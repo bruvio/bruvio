@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Avoid taking unnecessary gambles. Lucky numbers: 12, 15, 23, 28, 37
+> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
 
 ### Where you can find me
 

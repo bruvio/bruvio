@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Actions speak louder than fortune cookies.
+> 🥠 Never do something halfway. If you do it w
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 A closed mouth gathers no feet.
 
 ### Where you can find me
 

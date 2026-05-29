@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t forget you are always on our minds.
+> 🥠 Flattery will go far tonight.
 
 ### Where you can find me
 

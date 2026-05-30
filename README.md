@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Flattery will go far tonight.
+> 🥠 You will live long enough to open many fortune cookies.
 
 ### Where you can find me
 

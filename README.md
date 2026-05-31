@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will live long enough to open many fortune cookies.
+> 🥠 The road to riches is paved with homework.
 
 ### Where you can find me
 

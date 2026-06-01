@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The road to riches is paved with homework.
+> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who throws dirt is losing ground.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

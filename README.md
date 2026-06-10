@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you look back, you’ll soon be going that way.
+> 🥠 Only listen to the fortune cookie; disregard all other fortune telling units.
 
 ### Where you can find me
 

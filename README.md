@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Someone will invite you to a Karaoke party.
+> 🥠 Flattery will go far tonight.
 
 ### Where you can find me
 

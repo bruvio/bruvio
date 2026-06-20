@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You are not illiterate.
+> 🥠 This cookie contains 117 calories.
 
 ### Where you can find me
 

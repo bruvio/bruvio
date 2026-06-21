@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 This cookie contains 117 calories.
+> 🥠 That wasn’t chicken.
 
 ### Where you can find me
 

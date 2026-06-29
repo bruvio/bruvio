@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 18,000 children starve to death every day. They would have loved this cookie.
+> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
 
 ### Where you can find me
 

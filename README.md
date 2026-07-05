@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Some fortune cookies contain no fortune.
+> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
 
 ### Where you can find me
 

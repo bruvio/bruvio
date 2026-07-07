@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 An alien of some sort will be appearing to you shortly.
 
 ### Where you can find me
 

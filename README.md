@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A cynic is only a frustrated optimist.
+> 🥠 What's the speed of dark?
 
 ### Where you can find me
 

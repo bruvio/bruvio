@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Change is inevitable, except for vending machines.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 

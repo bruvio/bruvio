@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A closed mouth gathers no feet.
+> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
 
 ### Where you can find me
 

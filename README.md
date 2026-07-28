@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

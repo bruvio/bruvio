@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fortune not found? Abort, Retry, Ignore.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 

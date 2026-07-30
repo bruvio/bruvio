@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Some men dream of fortunes, others dream of cookies.
+> 🥠 I see money in your future. It's not yours though.
 
 ### Where you can find me
 

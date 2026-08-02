@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t let statistics do a number on you.
+> 🥠 You think it’s a secret, but they know.
 
 ### Where you can find me
 

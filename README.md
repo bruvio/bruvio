@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
 
 ### Where you can find me
 

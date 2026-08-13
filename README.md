@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will live long enough to open many fortune cookies.
+> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
 
 ### Where you can find me
 

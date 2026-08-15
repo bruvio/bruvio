@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 What's the speed of dark?
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Where you can find me
 

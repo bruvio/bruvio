@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you look back, you’ll soon be going that way.
+> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
+> 🥠 May you someday be carbon neutral.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 You have rice in your teeth.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Three can keep a secret, if you get rid of two.
+> 🥠 Never wear your best pants when you go to fight for freedom.
 
 ### Where you can find me
 

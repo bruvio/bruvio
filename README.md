@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never wear your best pants when you go to fight for freedom.
+> 🥠 It is a good day to have a good day.
 
 ### Where you can find me
 

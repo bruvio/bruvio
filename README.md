@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Flattery will go far tonight.
+> 🥠 The road to riches is paved with homework.
 
 ### Where you can find me
 

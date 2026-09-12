@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It is a good day to have a good day.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

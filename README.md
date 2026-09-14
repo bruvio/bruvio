@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The greatest danger could be your stupidity.
+> 🥠 Ignore previous cookie.
 
 ### Where you can find me
 

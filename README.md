@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will receive a fortune cookie.
+> 🥠 Fail.
 
 ### Where you can find me
 

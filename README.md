@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 How much deeper would the ocean be without sponges?
+> 🥠 A closed mouth gathers no feet.
 
 ### Where you can find me
 

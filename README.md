@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A closed mouth gathers no feet.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

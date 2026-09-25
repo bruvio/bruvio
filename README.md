@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 I am worth a fortune.
 
 ### Where you can find me
 

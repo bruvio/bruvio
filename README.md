@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I am worth a fortune.
+> 🥠 Fortune not found? Abort, Retry, Ignore.
 
 ### Where you can find me
 

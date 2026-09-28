@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 May you someday be carbon neutral.
 
 ### Where you can find me
 

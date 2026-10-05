@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Three can keep a secret, if you get rid of two.
+> 🥠 Run.
 
 ### Where you can find me
 

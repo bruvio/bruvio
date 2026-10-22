@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 How much deeper would the ocean be without sponges?
 
 ### Where you can find me
 

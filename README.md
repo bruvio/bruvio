@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
+> 🥠 You have rice in your teeth.
 
 ### Where you can find me
 

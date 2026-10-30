@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs last is laughing at you.
+> 🥠 Ask not what your fortune cookie can do for you but what you can do for your fortune cookie.
 
 ### Where you can find me
 

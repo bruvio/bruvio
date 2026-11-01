@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 How much deeper would the ocean be without sponges?
 
 ### Where you can find me
 

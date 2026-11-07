@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 I can't believe you're about to eat my tiny home.
 
 ### Where you can find me
 

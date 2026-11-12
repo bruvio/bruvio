@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
+> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
 
 ### Where you can find me
 

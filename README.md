@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Enjoy yourself while you can.
+> 🥠 You love Chinese food.
 
 ### Where you can find me
 

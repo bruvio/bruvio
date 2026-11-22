@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The road to riches is paved with homework.
+> 🥠 Fail.
 
 ### Where you can find me
 

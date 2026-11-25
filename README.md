@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I can't believe you're about to eat my tiny home.
+> 🥠 You will die alone and poorly dressed.
 
 ### Where you can find me
 

@@ -14,7 +14,7 @@
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will die alone and poorly dressed.
+> 🥠 We don’t know the future, but here’s a cookie.
 
 ### Where you can find me
 
